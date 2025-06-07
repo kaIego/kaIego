@@ -2,4 +2,4 @@
 
 ![](https://file.garden/aADASQgY3QmuIjC3/Untitled67_20250607143321.png)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=kaIego&color=gray)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=kaIego&color=lightgray)
